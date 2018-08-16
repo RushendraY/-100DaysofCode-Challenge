@@ -33,3 +33,22 @@
 **What did I learn today?** Learned about 2D lists, Nested loops, Try/Except use, Reading and Writing files
 
 **Thoughts:** I was feeling sleepy. Not able to focus well. I am able to realise the importance of sleep and how it had impacted my concentration and productivity all these years. If I want to become strong, focused, I should invest my time in best quality sleep. Coming to the challenge, inside there is a feeling i am losing 2 hours of time. But I want to learn to practice balancing things, especially when it comes to learning new things. I will focus on the exam and on the challenge too.
+
+----------------------------------------------------------------------------------------------------------------------------------------
+
+### Day 5: August 16, 2018 
+##### Thursday
+
+**What did I learn today?** Learned about Modules, using pip, classes and objects
+
+**Thoughts:** This is fifth day. I didn't expect i will push myself daily. Tomorrow i am going to complete the full course of getting an overview of python language. So, feeling excited.
+
+
+
+
+
+
+
+
+
+
