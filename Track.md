@@ -43,7 +43,14 @@
 
 **Thoughts:** This is fifth day. I didn't expect i will push myself daily. Tomorrow i am going to complete the full course of getting an overview of python language. So, feeling excited.
 
+----------------------------------------------------------------------------------------------------------------------------------------
 
+### Day 6: August 17, 2018 
+##### Friday
+
+**What did I learn today?** Finally completed the python beginner course. :-)
+
+**Thoughts:** I got a basic understanding of python for now. Right now I am confused, how to take forward this challenge. I will think upon and start tomorrow. I won't give up this challenge. 94 days more. :-):-)
 
 
 
