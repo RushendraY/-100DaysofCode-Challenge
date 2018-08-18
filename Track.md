@@ -52,7 +52,14 @@
 
 **Thoughts:** I got a basic understanding of python for now. Right now I am confused, how to take forward this challenge. I will think upon and start tomorrow. I won't give up this challenge. 94 days more. :-):-)
 
+----------------------------------------------------------------------------------------------------------------------------------------
 
+### Day 7: August 18, 2018 
+##### Saturday
+
+**What did I learn today?** Learned about HTML and CSS. :-):-)
+
+**Thoughts:** feeling great. I have completed HTML & CSS challenges on freecodecamp. It was awesome. I feel I got the way i am heading now. Now my target is to complete all the challenges on freecodecamp and get those certifications. Then, i will have something to cherish this year. However, I think i am deviating from my actual path of exam. I want to balance both. :-(:-(
 
 
 
