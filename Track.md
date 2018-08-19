@@ -61,7 +61,14 @@
 
 **Thoughts:** feeling great. I have completed HTML & CSS challenges on freecodecamp. It was awesome. I feel I got the way i am heading now. Now my target is to complete all the challenges on freecodecamp and get those certifications. Then, i will have something to cherish this year. However, I think i am deviating from my actual path of exam. I want to balance both. :-(:-(
 
+----------------------------------------------------------------------------------------------------------------------------------------
 
+### Day 8: August 19, 2018 
+##### Sunday
+
+**What did I learn today?** Learned about Applied Visual Design
+
+**Thoughts:** Was upset due to some fights at home. But feeling happy now as i completed the day challenge. 92 days more. I didn't know while i was starting this challenge that I would stick to it this far. Wish to continue the same spirit till the end. Hurray. :-)
 
 
 
