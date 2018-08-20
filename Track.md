@@ -70,6 +70,13 @@
 
 **Thoughts:** Was upset due to some fights at home. But feeling happy now as i completed the day challenge. 92 days more. I didn't know while i was starting this challenge that I would stick to it this far. Wish to continue the same spirit till the end. Hurray. :-)
 
+----------------------------------------------------------------------------------------------------------------------------------------
 
+### Day 9: August 20, 2018 
+##### Monday
+
+**What did I learn today?** Built a responsive website from scratch with help from traversy media.
+
+**Thoughts:** Don't know where I am heading but happy this challenge is moving forward. 91 days more. I am not balancing my exam and this challenge. I am bit upset about it. But want to do. I will do. I will.
 
 
