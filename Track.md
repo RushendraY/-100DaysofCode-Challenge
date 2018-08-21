@@ -79,4 +79,11 @@
 
 **Thoughts:** Don't know where I am heading but happy this challenge is moving forward. 91 days more. I am not balancing my exam and this challenge. I am bit upset about it. But want to do. I will do. I will.
 
+----------------------------------------------------------------------------------------------------------------------------------------
 
+### Day 10: August 21, 2018 
+##### Tuesday
+
+**What did I learn today?** completed Applied Visual Design challenges
+
+**Thoughts:** feeling happy that i am able to do the challenge for 10 days straight. I was not expecting it will happen even though I wanted inside. 90 days more. I would love to feel how it feels writing on Day 100. :-)
