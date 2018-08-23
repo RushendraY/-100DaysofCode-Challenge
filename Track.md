@@ -93,7 +93,7 @@
 ### Day 11: August 22, 2018 
 ##### Wednesday
 
-**What did I learn today?* wanted to learn about "less" and "Gatsby" from Mike Dane @Giraffe academy
+**What did I learn today?** wanted to learn about "less" and "Gatsby" from Mike Dane @Giraffe academy
 
 **Thoughts:** My birthday today. So kind of busy with phone calls. so did for only 1/2 hour. So decided to compensate the remaining to tomorrow. (writing on 23Aug2018)
 
@@ -102,7 +102,7 @@
 ### Day 12: August 23, 2018 
 ##### Thursday
 
-**What did I learn today?* learned about CSS flexbox.
+**What did I learn today?** learned about CSS flexbox.
 
 **Thoughts:** feeling great. able to compensate yesterday's remaining time. And did well today. However was not balancing both exam and challenge. Want to do. I will for sure. I promise.
 
