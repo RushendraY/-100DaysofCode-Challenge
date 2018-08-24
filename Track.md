@@ -107,6 +107,14 @@
 **Thoughts:** feeling great. able to compensate yesterday's remaining time. And did well today. However was not balancing both exam and challenge. Want to do. I will for sure. I promise.
 
 
+----------------------------------------------------------------------------------------------------------------------------------------
+
+### Day 13: August 24, 2018 
+##### Friday
+
+**What did I learn today?** didn't do well today. learning about Gatsby from Mike Dane.
+
+**Thoughts:** was busy texting with friend. So couldn't make it. Next time I won't repeat this mistake and I would compensate tomorrow for sure. I promise.
 
 
 
