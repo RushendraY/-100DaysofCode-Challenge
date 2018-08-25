@@ -116,7 +116,14 @@
 
 **Thoughts:** was busy texting with friend. So couldn't make it. Next time I won't repeat this mistake and I would compensate tomorrow for sure. I promise.
 
+----------------------------------------------------------------------------------------------------------------------------------------
 
+### Day 14: August 25, 2018 
+##### Saturday
+
+**What did I learn today?** learned about CSS grid. feels great. :-)
+
+**Thoughts:** I have not compensated yesterday's lost time. But I promise, I will surely do it tomorrow.. And I did well today in terms of both exam and coding. I will improve on the exam end too. I will crack the exam for sure. :-):-)
 
 
 
