@@ -125,7 +125,14 @@
 
 **Thoughts:** I have not compensated yesterday's lost time. But I promise, I will surely do it tomorrow.. And I did well today in terms of both exam and coding. I will improve on the exam end too. I will crack the exam for sure. :-):-)
 
+----------------------------------------------------------------------------------------------------------------------------------------
 
+### Day 15: August 26, 2018 
+##### Sunday
+
+**What did I learn today?** tried to revise the stuff i learnt. realised the importance of revision. shifted to SoloLearn. felt it is good compared to freecodecamp.
+
+**Thoughts:** Able to balance both exam and coding. But wanted to improve the blocks (10 min) and efficiency. I will do it. I want to change my life. :-)
 
 
 
