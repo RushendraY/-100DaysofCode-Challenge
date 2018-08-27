@@ -134,6 +134,14 @@
 
 **Thoughts:** Able to balance both exam and coding. But wanted to improve the blocks (10 min) and efficiency. I will do it. I want to change my life. :-)
 
+----------------------------------------------------------------------------------------------------------------------------------------
+
+### Day 16: August 27, 2018 
+##### Monday
+
+**What did I learn today?** Even though I completed the challenges on freecodecamp. I found sololearn to be better. So, started Learning HTML on SoloLearn.
+
+**Thoughts:** I am doing well on the EXAM and CODING. But, It's not enough. If I want to crack the exam. I must be efficient and prepare very heavily. I promise, I will do. :-)
 
 
 
