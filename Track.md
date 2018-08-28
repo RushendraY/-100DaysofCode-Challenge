@@ -143,5 +143,14 @@
 
 **Thoughts:** I am doing well on the EXAM and CODING. But, It's not enough. If I want to crack the exam. I must be efficient and prepare very heavily. I promise, I will do. :-)
 
+----------------------------------------------------------------------------------------------------------------------------------------
+
+### Day 17: August 28, 2018 
+##### Tuesday
+
+**What did I learn today?** Practicing at SoloLearn.
+
+**Thoughts:** Coding went well. I clearly see lot of time being wasted. I want to use it best for my exam. So, I decided to sit at Dad's place to fight this exam badly.
+
 
 
