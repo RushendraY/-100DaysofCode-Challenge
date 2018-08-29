@@ -152,5 +152,13 @@
 
 **Thoughts:** Coding went well. I clearly see lot of time being wasted. I want to use it best for my exam. So, I decided to sit at Dad's place to fight this exam badly.
 
+----------------------------------------------------------------------------------------------------------------------------------------
+
+### Day 18: August 29, 2018 
+##### Wednesday
+
+**What did I learn today?** got certificate from SoloLearn completion of HTML course. feeling happy. :-)
+
+**Thoughts:** feeling happy. studying well. but not sufficient. I want work more. I will do it.
 
 
