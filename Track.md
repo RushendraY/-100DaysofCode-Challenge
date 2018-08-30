@@ -161,4 +161,11 @@
 
 **Thoughts:** feeling happy. studying well. but not sufficient. I want work more. I will do it.
 
+----------------------------------------------------------------------------------------------------------------------------------------
 
+### Day 19: August 30, 2018 
+##### Thursday
+
+**What did I learn today?** started learning CSS
+
+**Thoughts:**
