@@ -168,4 +168,15 @@
 
 **What did I learn today?** started learning CSS
 
-**Thoughts:**
+**Thoughts:** (writing on Aug 31) able to do for 1/2 hour only. I will compensate the missed time for sure. I promise. :(:(
+
+----------------------------------------------------------------------------------------------------------------------------------------
+
+### Day 20: August 31, 2018 
+##### Friday
+
+**What did I learn today?** still learning CSS @soloLearn
+
+**Thoughts:** feeling so tired today. studied for exam well. :):) However did coding for 50 min only. So I should compensate total 40 min. I will definetly complete. As per my experience this far, I am able to realize the importance of patience for learning something important for our life. 80 more days. :)
+
+
