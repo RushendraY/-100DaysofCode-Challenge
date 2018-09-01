@@ -179,4 +179,11 @@
 
 **Thoughts:** feeling so tired today. studied for exam well. :):) However did coding for 50 min only. So I should compensate total 40 min. I will definetly complete. As per my experience this far, I am able to realize the importance of patience for learning something important for our life. 80 more days. :)
 
+----------------------------------------------------------------------------------------------------------------------------------------
 
+### Day 21: September 1, 2018 
+##### Saturday
+
+**What did I learn today?** still learning CSS @soloLearn
+
+**Thoughts:**
