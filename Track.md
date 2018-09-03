@@ -196,3 +196,12 @@
 **What did I learn today?** still learning CSS @soloLearn
 
 **Thoughts:**
+
+----------------------------------------------------------------------------------------------------------------------------------------
+
+### Day 23: September 3, 2018 
+##### Monday
+
+**What did I learn today?** still learning CSS @soloLearn
+
+**Thoughts:**
