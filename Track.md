@@ -240,5 +240,5 @@
 
 **What did I learn today?** Got the CSS completion certificate from SoloLearn.
 
-**Thoughts:** After almost a week (like from Aug 30 - i was not able to be regular), I did the challenge for 1 hour. feeling great and happy. I am able to compensate the lost time of 1 hour of Sep 1 today. I got the certificate. Quitting is easy. But I don't want to do it. Actually, Nowadays, i am becoming good at exam prep compared to coding. feels like quitting the challenge and focus more on prep. But no. I won't do. I will balance both. I want to have something as achievement for 2018. So, this year, i am giving myself a skill - coding. :-):-)
+**Thoughts:** After almost a week (like from Aug 30 - i was not able to be regular), I did the challenge for 2 hours. feeling great and happy. I am able to compensate the lost time of 1 hour of Sep 1 today. I got the certificate. Quitting is easy. But I don't want to do it. Actually, Nowadays, i am becoming good at exam prep compared to coding. feels like quitting the challenge and focus more on prep. But no. I won't do. I will balance both. I want to have something as achievement for 2018. So, this year, i am giving myself a skill - coding. :-):-)
 
