@@ -177,7 +177,7 @@
 
 **What did I learn today?** still learning CSS @soloLearn
 
-**Thoughts:** feeling so tired today. studied for exam well. :):) However did coding for 50 min only. So I should compensate total 40 min. I will definetly complete. As per my experience this far, I am able to realize the importance of patience for learning something important for our life. 80 more days. :)
+**Thoughts:** feeling so tired today. studied for exam well. :):) However did coding for 50 min only. So I should compensate total 40 min. I will definetly complete. As per my experience this far, I am able to realize the importance of patience for learning something important for our life. 80 more days. :) (writing on Sep 9 - compensated remaining 10 min too.)
 
 ----------------------------------------------------------------------------------------------------------------------------------------
 
@@ -186,7 +186,7 @@
 
 **What did I learn today?** still learning CSS @soloLearn
 
-**Thoughts:** (writing on Sep 7) I didn't do the challenge. However, I didn't want to quit the challenge. I compensated the 1 hour on Sep 7, 2018
+**Thoughts:** (writing on Sep 7 - compensated 1 hour)
 
 ----------------------------------------------------------------------------------------------------------------------------------------
 
@@ -222,7 +222,7 @@
 
 **What did I learn today?** still learning CSS @soloLearn
 
-**Thoughts:**
+**Thoughts:** (writing on Sep 9 - compensated 1 hour)
 
 ----------------------------------------------------------------------------------------------------------------------------------------
 
@@ -249,4 +249,13 @@
 
 **What did I learn today?** Started learning Javascript @sololearn
 
-**Thoughts:** Not able to make it. Failed.
+**Thoughts:** Not able to make it. Failed. (writing on Sep 9 - compensated my 1 hour.)
+
+----------------------------------------------------------------------------------------------------------------------------------------
+
+### Day 29: September 9, 2018 
+##### Sunday
+
+**What did I learn today?** Got certificate - Javascript @sololearn
+
+**Thoughts:** did 3 hour 10 min today to compensate what i lost. feeling happy. But i shouldn't procrastinate yar. It really sucks compensating the lost time. I have few more hours to compensate. I will do them in upcoming days. OMG. It feels horrible completing pending work. I should learn from this mistake. Only a fool won't learn from his mistakes. I am not a fool. And I should do the same in my exam prep. If you become lazy and procrastinate the work you should do to make your life better, that work will not only eat the procrastinated time but also the future time which you should compensate to complete it. Single work. Double time. Making life stressful. Think darling. Don't repeat the same mistakes yar. Just do it.
