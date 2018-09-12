@@ -262,15 +262,27 @@
 
 ----------------------------------------------------------------------------------------------------------------------------------------
 
-### Day 29: September 9, 2018 
-##### Sunday
+### Day 30: September 10, 2018 
+##### Monday
 
-**What did I learn today?**
+**What did I learn today?** Nothing.
 
+**Thoughts:** Not able to do the challenge.
 
 ----------------------------------------------------------------------------------------------------------------------------------------
 
-### Day 29: September 9, 2018 
-##### Sunday
+### Day 31: September 11, 2018 
+##### Tuesday
 
-**What did I learn today?**
+**What did I learn today?** Nothing.
+
+**Thoughts:** Not able to do it.
+
+----------------------------------------------------------------------------------------------------------------------------------------
+
+### Day 32: September 12, 2018 
+##### Wednesday
+
+**What did I learn today?** Nothing.
+
+**Thoughts:** I have exam on June 2, 2019. around 250 days left. I want to clear this at any cost. So, I am not able to focus on this. It's acting like an hindrance to me. I know I wanted to complete this challenge. I wanted to have something as achievement for this year. But exam is my utmost priority. I am just postponing this challenge. That's it. I quit. Bye. See you after exam.
